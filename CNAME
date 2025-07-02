@@ -1,1 +1,0 @@
-simulador.ncboxhair.com.br
